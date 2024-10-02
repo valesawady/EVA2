@@ -6,4 +6,5 @@ foto Churu
 
 French and fun
 ![Proyecto nuevo](https://github.com/user-attachments/assets/6846097f-4a92-4d8a-8137-1a719f95dee2)
-![Collages (1)](https://github.com/user-attachments/assets/eaae4ad8-00a2-45b0-a304-7f74a8a3b197)
+![Collages (1)](https://github.com/user-attachments/assets/7d1bba10-ca86-4149-be70-93d9c10c0ad6)
+
