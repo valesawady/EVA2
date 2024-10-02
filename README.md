@@ -10,3 +10,8 @@ French and fun
 
 Foto mía
 ![IMG_0438](https://github.com/user-attachments/assets/f3485155-2b8a-48c6-8596-06164c373cf0)
+![Proyecto diseño info](https://github.com/user-attachments/assets/d16cc938-6317-487e-ba61-7baacb4f370d)
+![portada ova](https://github.com/user-attachments/assets/b0080fe0-69f0-4b7f-a314-0fa60c1dcfca)
+![portada aspiradora vacurve](https://github.com/user-attachments/assets/43a6f094-3a13-4b53-aaa8-1699652c445b)
+![Construyendo Chile](https://github.com/user-attachments/assets/3f37340a-7b98-4b4b-8a69-b2b890ce85a4)
+![Yunus portada](https://github.com/user-attachments/assets/84110427-7ced-4072-b50d-ce1276715225)
