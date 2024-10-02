@@ -8,3 +8,5 @@ French and fun
 ![Proyecto nuevo](https://github.com/user-attachments/assets/6846097f-4a92-4d8a-8137-1a719f95dee2)
 ![Collages (1)](https://github.com/user-attachments/assets/7d1bba10-ca86-4149-be70-93d9c10c0ad6)
 
+Foto mía
+![IMG_0438](https://github.com/user-attachments/assets/f3485155-2b8a-48c6-8596-06164c373cf0)
