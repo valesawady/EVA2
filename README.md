@@ -22,5 +22,6 @@ Foto mía
 ![Diseño sin título](https://github.com/user-attachments/assets/ad28136e-2064-44aa-9cd6-a21b0202ce56)
 ![Diseño sin título (1)](https://github.com/user-attachments/assets/80b22cc6-f07c-4534-bb9d-6e6cd5e956fc)
 ![Diseño sin título (2)](https://github.com/user-attachments/assets/0abeb733-c8a2-436a-9c77-f9f82f4a08f1)
+![fptp](https://github.com/user-attachments/assets/b7b800d6-affa-47ac-9451-edc891a769b6)
 
 
