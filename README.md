@@ -15,3 +15,6 @@ Foto mía
 ![portada aspiradora vacurve](https://github.com/user-attachments/assets/43a6f094-3a13-4b53-aaa8-1699652c445b)
 ![Construyendo Chile](https://github.com/user-attachments/assets/3f37340a-7b98-4b4b-8a69-b2b890ce85a4)
 ![Yunus portada](https://github.com/user-attachments/assets/84110427-7ced-4072-b50d-ce1276715225)
+
+![Diseño sin título](https://github.com/user-attachments/assets/ffdb872d-1472-4d8a-9b87-4a60ec6310cd)
+![07 Free A4 A5 Magazine Mockup](https://github.com/user-attachments/assets/8117c73e-8309-4ce3-9c9a-aa5700edc9fd)
